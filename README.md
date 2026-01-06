@@ -1,2 +1,6 @@
 # 🥉 Nektar 🌱 Peace
-The open community for plant-based and animal-friendly living.
+Open community for plant-based & animal-friendly living
+
+Where people, animals, and nature coexist
+
+Community for compassionate living
